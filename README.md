@@ -1,5 +1,5 @@
 ### Olá!! Eu sou Leonardo Montalvão 👋💾
-
+Sou estudante da Faculdade Uniprojeção, em Análise e Desenvolvimento de Sistemas.
 
 <br>
 
